@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TAS1983
+- 👀 I’m interested in learning how to code.
+- 🌱 I’m currently learning how to do this as I type 
+- 📫 How to reach me ...stanfield.t@outlook.com
